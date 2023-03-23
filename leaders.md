@@ -1,2 +1,2 @@
 ### Leaders
-* [Divyanshu Shukla](mailto:divyanshushukl@gmail.com)
+* [Divyanshu Shukla](mailto:s3curitydojo@gmail.com)
